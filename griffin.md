@@ -1,1 +1,1 @@
-Chase is weird.
+Chase is weird!
